@@ -1,1 +1,0 @@
-# techimiste.github.io
